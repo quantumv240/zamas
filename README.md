@@ -1,0 +1,10 @@
+tik
+edf
+ddd
+ddf
+rfr4
+f43
+ft4
+gf4s
+ft46
+fg4
